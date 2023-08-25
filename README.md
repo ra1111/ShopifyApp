@@ -46,6 +46,3 @@ For more information about our privacy practices, if you have questions, or if y
 E/422 A Block,
 Sonari, Jamshedpur.
 
----
-
-You can adjust the policy further as needed to fit your specific needs and circumstances. Ensure you consult with a legal professional to verify the policy's content before finalizing and publishing it.
